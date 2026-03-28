@@ -14,5 +14,3 @@ Sou profissional com experiência em gestão financeira, análise e organizaçã
 
 ---
 [![](https://visitcount.itsvg.in/api?id=MatheusPxt&icon=0&color=9)](https://visitcount.itsvg.in)
-
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
